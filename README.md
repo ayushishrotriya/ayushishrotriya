@@ -1,4 +1,4 @@
-# *$${\color{blue}AYUSHI-SHROTRIYA}$$*
+# - ![Ayushi-Shrotriya](https://via.placeholder.com/15/f03c15/000000?text=+) `Ayushi-Shrotriya`
 
 ### Technologies 
 
